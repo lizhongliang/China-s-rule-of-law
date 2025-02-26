@@ -1,4 +1,4 @@
-# China-s-rule-of-law
+# China's rule of law
 
 问题：https://szbbs.sznews.com/thread-4301393-1-1.html
 
